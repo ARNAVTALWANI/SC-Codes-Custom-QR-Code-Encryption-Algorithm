@@ -1,0 +1,1 @@
+# SC-Codes-Custom-QR-Code-Encryption-Algorithm-
